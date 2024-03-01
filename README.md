@@ -1,0 +1,11 @@
+ZADANIE DLA PETLI FOR 
+
+
+
+
+
+
+
+
+
+
